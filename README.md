@@ -2,7 +2,7 @@
 👔 Student: Pîntea Maxim <br>
 📃 Grupa: InfR-47 <br> <br> <br> <br> <br> <br> <br> <br>
 
-
+https://i.imgur.com/g3Z0bNP.png
 
 
 
